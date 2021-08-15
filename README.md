@@ -1,4 +1,5 @@
 # TNCC
+[adding that to the cringe list]
 The Nitrogen Cringe Collection 
 Last updated: 2021-08-15
 -------------------------------------------------------------------------------------
@@ -39,4 +40,26 @@ Nitrogen: going out in 10 mins
 Nitrogen: Getting dinner
 Nitrogen: Same mate as yesterday
 Nitrogen: But his gf and other mates are going
+-------------------------------------------------------------------------------------
+Nitrogen: would rather kiss lou's hairy ass
+-------------------------------------------------------------------------------------
+Nitrogen: lou says we chill here now cos you ditch a lot
+Nitrogen: "I'll do it again"
+Nitrogen: not helping nigga!
+-------------------------------------------------------------------------------------
+Nitrogen: pain
+Nitrogen: we're getting old
+-------------------------------------------------------------------------------------
+Windows: 5372.swf
+Nitrogen: fuck off
+Nitrogen: not downloading
+[not knowing what flash files are. super cringe!]
+-------------------------------------------------------------------------------------
+Nitrogen: fuck off with the jerma gif
+-------------------------------------------------------------------------------------
+Nitrogen: cum balls
+Nitrogen: the cringe list does not affect a nigga
+-------------------------------------------------------------------------------------
+Nitrogen: aight I'm back I got 2 cheese ham wraps
+Nitrogen: how is that cringe, just eating lunch is cringe apparently
 -------------------------------------------------------------------------------------
