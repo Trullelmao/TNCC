@@ -1,7 +1,7 @@
 # TNCC
 [adding that to the cringe list]
 The Nitrogen Cringe Collection 
-Last updated: 2021-08-15
+Last updated: 2021-08-18
 -------------------------------------------------------------------------------------
 Nitrogen: Going to tesco
 Nitrogen: gotta cook dinner
@@ -62,4 +62,8 @@ Nitrogen: the cringe list does not affect a nigga
 -------------------------------------------------------------------------------------
 Nitrogen: aight I'm back I got 2 cheese ham wraps
 Nitrogen: how is that cringe, just eating lunch is cringe apparently
+-------------------------------------------------------------------------------------
+Nitrogen: Shit windows does in his free time
+Nitrogen: also brb
+Nitrogen: going for a drive
 -------------------------------------------------------------------------------------
