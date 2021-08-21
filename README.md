@@ -67,3 +67,5 @@ Nitrogen: Shit windows does in his free time
 Nitrogen: also brb
 Nitrogen: going for a drive
 -------------------------------------------------------------------------------------
+Nitrogen: it actually looks like a sword ( after adding plasic looking ass bootleg swords onto skyrim )
+-------------------------------------------------------------------------------------
